@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @takgun0
+- 👀 I’m interested in cyber security
+- 🌱 I’m currently studying MIS at Necmettin Erbakan University
